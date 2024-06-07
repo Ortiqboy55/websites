@@ -1,3 +1,4 @@
+![1000000344](https://github.com/RikkaApps/websites/assets/172069145/e8991d08-adf0-4677-b0ef-0e7b089c3b79)
 # User manual
 
 [[toc]]
